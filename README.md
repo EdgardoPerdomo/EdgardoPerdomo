@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ed1997cast@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/ezer-castellanos-485539129/](https://www.linkedin.com/in/ezer-castellanos-485539129/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/edgardo-perdomo-485539129/](https://www.linkedin.com/in/edgardo-perdomo-485539129/)
 
 - ⚡ Fun fact **I'm not lucky I create my own luck**
 
